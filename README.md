@@ -1,1 +1,1 @@
-https://TaniaVasilevich12.github.io/rsschool-cv/cv
+https://TaniaVasilevich12.github.io/rsschool-cv/
